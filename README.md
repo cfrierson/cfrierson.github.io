@@ -1,2 +1,0 @@
-# cfrierson.github.io
-ePortfolio
